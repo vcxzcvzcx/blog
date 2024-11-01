@@ -1,3 +1,17 @@
+https://github.com/vcxzcvzcx/blog/blob/main/%EA%B8%88%EC%9C%B5%EC%83%81%EC%8B%9D%20%EB%B0%8F%20%EC%9A%A9%EC%96%B4/KB%20%EB%8C%80%EB%B9%84%20%EC%9A%A9%EC%96%B4%EC%A0%95%EB%A6%AC/%EB%94%94%EC%A7%80%ED%84%B810%20%2B%20%EC%83%81%EC%8B%9D20.md#-tistory%EC%9A%A9%EC%96%B4
+
+
+
+https://github.com/vcxzcvzcx/blog/blob/main/%EA%B8%88%EC%9C%B5%EC%83%81%EC%8B%9D%20%EB%B0%8F%20%EC%9A%A9%EC%96%B4/KB%20%EB%8C%80%EB%B9%84%20%EC%9A%A9%EC%96%B4%EC%A0%95%EB%A6%AC/%EB%94%94%EC%A7%80%ED%84%B810%20%2B%20%EC%83%81%EC%8B%9D20.md#-tistory%EC%9A%A9%EC%96%B4
+
+
+
+https://github.com/vcxzcvzcx/blog/blob/main/%EA%B8%88%EC%9C%B5%EC%83%81%EC%8B%9D%20%EB%B0%8F%20%EC%9A%A9%EC%96%B4/KB%20%EB%8C%80%EB%B9%84%20%EC%9A%A9%EC%96%B4%EC%A0%95%EB%A6%AC/%EB%94%94%EC%A7%80%ED%84%B810%20%2B%20%EC%83%81%EC%8B%9D20.md#-tistory%EC%9A%A9%EC%96%B4
+
+
+
+
+
 # 💊 Tistory용어
 
 * 폴리코노미: 정치가 경제를 뒤흔든다.
