@@ -18,7 +18,7 @@
 
 [[경제기사\]-17-신용창조.md](https://github.com/vcxzcvzcx/blog/blob/main/금융상식 및 용어/[경제기사]-17-신용창조.md)
 
-
+[ㄹㅁㄴㅇㄹㄴㄹㄴㄹㅁㄴ](https://github.com/vcxzcvzcx/blog/blob/main/금융상식 및 용어/[경제기사]-19%2C20-기준금리.md)
 
 [[경제기사\]-18-BIS 자기자본비율.md](https://github.com/vcxzcvzcx/blog/blob/main/금융상식 및 용어/[경제기사]-18-BIS 자기자본비율.md)
 
